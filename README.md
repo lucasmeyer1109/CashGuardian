@@ -9,3 +9,6 @@ Luiz Henrique Sousa Fabiano - 32354924 - 32354924@mackenzista.com.br
 <br>
 <br>
 Gabriel Neri - 32366851 - 32366851@mackenzista.com.br
+<br>
+<br>
+Cauê Lemos Garcia - 32315104 - 32315104@mackenzista.com.br
